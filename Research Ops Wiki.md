@@ -1,0 +1,1 @@
+[[Working in public]] on [[Smart Notes]] about [[Research Ops]].
